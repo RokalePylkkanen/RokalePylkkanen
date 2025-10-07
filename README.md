@@ -1,4 +1,4 @@
-### Hi there 🖕
+
 
 Olen Risto Piiroinen. Opiskelen LABissa. 
 
